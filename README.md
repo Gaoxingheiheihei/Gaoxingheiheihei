@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gaoxingheiheihei
+- 👋 Hi, I’m @PhoenixEATG
 - 👀 I’m interested in exploring new and unknown world. 
 - 🌱 I’m currently learning how to exploring new and unknown world. 
 - 💞️ I’m looking to collaborate on ...
